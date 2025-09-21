@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @DiXcipuli
-- 👀 I’m interested in Robotics, Music, and in handcrafting! Loves to create out of wood metal augmented with electronics.
+- 👀 I’m interested in Robotics, Music, and in Handcrafting! Love to create stuff out of wood and metal, augmented with electronics.
 - 📫 How to reach me DiXcipuli@gmail.com
